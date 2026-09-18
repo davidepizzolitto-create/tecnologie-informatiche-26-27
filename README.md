@@ -1,0 +1,1 @@
+# tecnologie-informatiche-26-27
